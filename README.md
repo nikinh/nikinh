@@ -1,5 +1,5 @@
 - 👋 oi,eu sou @nikinho
-- 👀 eu me intereço em computaçaO
+- 👀 eu me intereço em computaçao
 - 🌱 estou apredendo atualmente programaçao 
 - 💞️ preucuro colaborar com progamaçao e analise
 - 📫 como chegar até mim? ME CHAMA NO INSTA 
